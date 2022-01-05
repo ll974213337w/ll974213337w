@@ -1,4 +1,4 @@
-### Hi there 👋
+# You can tell the ideals of a nation by its advertisements. 👋
 
 <!--
 **ll974213337w/ll974213337w** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
